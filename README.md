@@ -1,4 +1,4 @@
-# Media articles published & written by *Muzhi Zhou* 
+# Media articles published by *Muzhi Zhou* 
 
 :sparkles: Topics cover **Fertility**, **Maternity policy**, **Gender in STEM**, **Inequality** and **COVID-19**.
 
